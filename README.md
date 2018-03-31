@@ -4,5 +4,6 @@ This repository is for showing how Git and GitHub work
 
 ## Purpose
 
-Sample website with plenty of files for demos
-i want to kill demons!!!!!
+Sample website with plenty of files for demos i want to kill demons!!!!!
+
+# Deployment
