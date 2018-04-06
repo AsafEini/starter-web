@@ -13,3 +13,6 @@ fuck those Demonss!!!!!
 you are the hero of kavatch!!
 #Copy right
 shitttt man this is copy rights!
+
+#how to contribute
+dont do nothing man!!
