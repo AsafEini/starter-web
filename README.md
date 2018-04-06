@@ -11,3 +11,5 @@ fuck those Demonss!!!!!
 
 #Rejoice!
 you are the hero of kavatch!!
+#Copy right
+shitttt man this is copy rights!
