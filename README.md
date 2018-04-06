@@ -9,10 +9,11 @@ Sample website with plenty of files for demos i want to kill demons!!!!!
 # Deployment
 fuck those Demonss!!!!!
 
-#Rejoice!
+# Rejoice!
 you are the hero of kavatch!!
-#Copy right
+
+#C opy right
 shitttt man this is copy rights!
 
-#how to contribute
-dont do nothing man!!
+# how to contribute
+dont do nothing man!! REBASE BABY
