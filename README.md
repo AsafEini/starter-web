@@ -16,4 +16,4 @@ you are the hero of kavatch!!
 shitttt man this is copy rights!
 
 # how to contribute
-dont do nothing man!! REBASE BABY
+dont do nothing man!! REBASE BABY, more changes from my-feature too
